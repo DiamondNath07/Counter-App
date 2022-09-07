@@ -18,3 +18,4 @@ In case you want to reach me, send a message via (diamondnathaniel2@gmail.com)
 # Refs
 
 (www.johnsmilga.com)
+Diamond Nicholas
